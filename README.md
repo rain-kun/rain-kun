@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+This account is an old alias for my real account @vi4hu. If you get here via some link, please consider sharing the link infomation to me via my [mail](rain.reachme@protonmail.com) and visit my original account @vi4hu.
+
 <!--
 **rain-kun/rain-kun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
